@@ -1,1 +1,1 @@
-Estou achano incrível o curso!!!
+Estou achando incrível o curso!!!
